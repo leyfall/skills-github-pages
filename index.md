@@ -1,3 +1,3 @@
 ---
-title: Welcome to my blog!
+title: WELCOME TO THE DOOM OF NOTHING!
 ---
